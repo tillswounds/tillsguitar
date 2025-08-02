@@ -19,4 +19,4 @@ tamaki (mha) .ᐟ
 
 ────୨ৎ────
 
-ruby, amon, liz, jazzy, kats, mac, rainy, koby, donnie, sin, lulu, anon, kyo, few irl friends and more ˚ʚ♡ɞ˚
+ruby, amon, liz, jazzy, kats, mac, rainy, koby, donnie, sin, lulu, anon, kyo, flynn, few irl friends and more ˚ʚ♡ɞ˚
