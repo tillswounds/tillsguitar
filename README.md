@@ -7,7 +7,8 @@ yoshiki (tshd) .ᐟ
 yuji (jjk) .ᐟ
 hikaru (tshd) .ᐟ
 till (alnst) .ᐟ
-tamaki (mha) .ᐟ
+tamaki (mha).ᐟ
+kaidou (tdlosk).ᐟ
 
 ✧･ﾟ: *✧･ﾟ:*
 
