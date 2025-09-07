@@ -20,4 +20,4 @@ kaidou (tdlosk).ᐟ
 
 ────୨ৎ────
 
-ruby, amon, liz, jazzy, kats, donnie, sin, lulu, anon, flynn, few irl friends and more ˚ʚ♡ɞ˚
+ruby, amon, liz, jazzy, kats, donnie,  anon, flynn, few irl friends and more ˚ʚ♡ɞ˚
